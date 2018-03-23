@@ -1,0 +1,2 @@
+# tec
+Thamani Economics Consulting
